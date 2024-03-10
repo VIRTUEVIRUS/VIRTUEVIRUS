@@ -1,7 +1,7 @@
 <h2 align="center">  
 
 
-<img src="https://64.media.tumblr.com/04c6d968009c7b0843f7253eeac829e1/4c9d16f4069debe1-14/s2048x3072/ee7a7f0ee0740de20b747761b2e2506de699bddc.pnj"/> ( *C* YTBUG / JEKYLL ) ☆ <img src="https://barok.crd.co/assets/images/gallery04/2a0f569e.gif?v=8cc45fd0"/>
+<img src="https://64.media.tumblr.com/04c6d968009c7b0843f7253eeac829e1/4c9d16f4069debe1-14/s2048x3072/ee7a7f0ee0740de20b747761b2e2506de699bddc.pnj"/> ( ***C*** **YTBUG** / JEKYLL ) ☆ <img src="https://barok.crd.co/assets/images/gallery04/2a0f569e.gif?v=8cc45fd0"/>
 
 <h3 align="center">
 
