@@ -1,7 +1,5 @@
 <h4 align="center">  
-<img src="https://cdn.discordapp.com/attachments/1065046295078781038/1211068443323801610/vampie.png?ex=660889e1&is=65f614e1&hm=cc25627bf567d75992b29b21c0e03a1503fd4bbab09daccb19d6aa756d57d58f&"/>
-  
-  
+
 <img src="https://media.discordapp.net/attachments/1073026964409041017/1220718951718453378/THE_JOKER-removebg-preview.png?ex=660ff61d&is=65fd811d&hm=57402603d269d6b0a94246e702215203ed639ae6bde79c245ba650f4332225f0&=&format=webp&quality=lossless"/>
 
 <img src="https://64.media.tumblr.com/f26d81258dffe3802da0368e9b7cca88/1a03627f8a62a116-bb/s500x750/4874065926d61c6ce31ff00e5cda5b4a4d1e27c6.pnj"/>
