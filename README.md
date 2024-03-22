@@ -6,7 +6,7 @@
 
 <h4 align="center">  
 
-CYTBUG / BUG . HE / HIM . GOTH / METAL
+CYTBUG / bug . ( <img src="https://64.media.tumblr.com/09012edbc0b3438ab0771d25aa68d7dc/df9993671d388a92-72/s75x75_c1/22830327bad180aeaed85731cd64d44d2ae59678.gifv"/> ) . HE / HIM . ( <img src="https://xyz.crd.co/assets/images/gallery18/9f57fbb3.gif?v=6ecccb1c"/> ) METAL / goth
 
 <img src="https://media.discordapp.net/attachments/1073026964409041017/1220718951718453378/THE_JOKER-removebg-preview.png?ex=660ff61d&is=65fd811d&hm=57402603d269d6b0a94246e702215203ed639ae6bde79c245ba650f4332225f0&=&format=webp&quality=lossless"/>
 
