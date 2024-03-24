@@ -6,6 +6,8 @@ im not real
 
 
 
+<img src="https://tchai.carrd.co/assets/images/gallery06/877fee83.png?v=4565042c"/>
+
 ***
 
 sweetheart, please love me too long
