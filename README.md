@@ -17,7 +17,7 @@
 
 <h6 align="center">
 
-<img src="https://64.media.tumblr.com/bd07350707c055f76da8ee720f9f86cd/40413f7e689c669e-aa/s100x200/9f8cffed3fc6f7c5013cb39aee9a16e0ec23f5b2.gifv"/> 　𝐬𝐭u𝐜𝐤 𝐢n 𝐭h𝐞 𝟐000𝐬　x3
+<img src="https://64.media.tumblr.com/bd07350707c055f76da8ee720f9f86cd/40413f7e689c669e-aa/s100x200/9f8cffed3fc6f7c5013cb39aee9a16e0ec23f5b2.gifv"/> 　𝐬𝐭u𝐜𝐤 𝐢n 𝐭h𝐞 𝟐𝟎𝟎𝟎s　x3
 
 <h6 align="center">
 
