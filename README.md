@@ -21,7 +21,7 @@
 
 <h6 align="center">
 
-( <img src="https://64.media.tumblr.com/a47e1590f634ce17a70eeefdf6e1a621/2e220f9d268f7399-74/s75x75_c1/f97b7fc5197699151f322e13161fc90321b6feb3.gifv"/> )  　(҂ `з´) ︻╦̵̵̿╤──
+(҂ `з´) ︻╦̵̵̿╤──  　( <img src="https://64.media.tumblr.com/a47e1590f634ce17a70eeefdf6e1a621/2e220f9d268f7399-74/s75x75_c1/f97b7fc5197699151f322e13161fc90321b6feb3.gifv"/> )  　
 
 <h6 align="center">
  
@@ -29,4 +29,4 @@
  
 　 　 　 　 　 
  
-<img src="https://64.media.tumblr.com/4d5995399d2d119230c08c3d5fc5428e/a59bc8ddf2ecf3d4-ec/s1280x1920/7d09bf0640da4bfa3eb48e28c07c7d2e36bb5126.gifv"/>
+<img src="https://64.media.tumblr.com/fce55da55108f6ac3165303f0b7e9a69/b49ab3ddb3560cb3-9f/s1280x1920/04dc73be5ccd212d8fc0e0fccd1405151e992ff6.pnj"/>
