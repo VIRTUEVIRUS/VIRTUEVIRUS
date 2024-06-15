@@ -3,4 +3,4 @@
 
   my links :
   
-[rentry](https://rentry.co/virtueslug)　　　 [instagram](https://www.instagram.com/slugr4t/)
+[rentry](https://rentry.co/slug2d)　　　 [instagram](https://www.instagram.com/slugr4t/)
