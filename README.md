@@ -3,7 +3,8 @@
 
   my links :
 
-[rentry](https://rentry.co/slug2d)　　　 [instagram](https://www.instagram.com/slugr4t/)　　　 [alt](https://github.com/SM3GHEAD)
+[rentry](https://rentry.co/slug2d)　　　 [alt](https://github.com/SM3GHEAD)
+　　　 [instagram](https://www.instagram.com/slugr4t/)
 
 ***
 
